@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning:- Html....
 - Qualification:- undergraduate..
 - Marks off class 10 :- 63%
-- Marks off class 12%
+- Marks off class 12 :- 74%
 --->
