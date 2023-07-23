@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @BhavneeRana
+- 👀 I’m interested in to play games like:- mma fighting,kabaddi,cricket. ...
+- 🌱 I’m currently learning:- Html....
+- Qualification:- undergraduate..
+- Marks off class 10 :- 63%
+- Marks off class 12%
+--->
